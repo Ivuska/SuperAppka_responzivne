@@ -1,0 +1,1 @@
+# SuperAppka_responzivne
